@@ -20,6 +20,7 @@ Part-Time Assistant at Kumon
 
 • Train new employees in data entry tasks
 
+
 Head of Entrepreneurship Department at EYDB
 
 • Lead a team of 30+ interns in training them to submit business pitches to potential investors to secure funds for future projects
@@ -29,6 +30,7 @@ Head of Entrepreneurship Department at EYDB
 • Track the team to ensure they are completing tasks timely and efficiently, and promptly follow up with those who fail to do so
 
 • Host weekly team-wide meetings to regroup and strategize for the upcoming week, and coordinate meeting times with interns worldwide
+
 
 Social Media & Product Strategy Intern and Team Captain
 
