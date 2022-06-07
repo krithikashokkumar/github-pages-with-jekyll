@@ -11,6 +11,7 @@ Part-Time Assistant at Kumon
 • Ensure Kumon parents are submitting students' scores on a weekly basis, and promptly follow up with parents who fail to do so
 • Grade students' packets, and input them in their scorecards
 • Train new employees in data entry tasks
+
 Head of Entrepreneurship Department at EYDB
 • Lead a team of 30+ interns in training them to submit business pitches to potential investors to secure funds for future projects
 • Create compelling application portfolios to potentially receive prize money and resources from a variety of entrepreneurship competitions
